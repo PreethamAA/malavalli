@@ -1,0 +1,1 @@
+"gpt kote malavalli madya" 
